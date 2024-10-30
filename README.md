@@ -1,4 +1,4 @@
-          Hi, I’m Yasmin Dias
+**Hi, I’m Yasmin Dias**
 - 👀 I'm interested in learning new things
 - ⚡ Currently majoring in Information Systems
 - 📫 How to reach me: yasmin.dias@alunos.ifsuldeminas.edu.br
